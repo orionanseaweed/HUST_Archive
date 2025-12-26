@@ -1,0 +1,1 @@
+Các tài liệu sẽ được update sớm. Mọi người có thể xem qua tại đây: [https://drive.google.com/drive/folders/1pn5nYvBMCinbcly1Jgzi2wldN0RNSynu?usp=drive_link]{https://drive.google.com/drive/folders/1pn5nYvBMCinbcly1Jgzi2wldN0RNSynu?usp=drive_link}
